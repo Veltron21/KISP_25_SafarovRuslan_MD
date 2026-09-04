@@ -1,0 +1,1 @@
+# KISP_25_SafarovRuslan_MD
